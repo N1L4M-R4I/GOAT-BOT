@@ -1,1 +1,1 @@
-This bot create by Aminul Sordar 
+* GOAT BOT 3.0
